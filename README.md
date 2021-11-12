@@ -1,0 +1,10 @@
+- Hi, I’m @Turbonub
+- I’m interested in all things mechanical
+- I’m currently learning the depths of 2D+1D Printing
+- I’m looking to collaborate on The Voron v2.4 project
+- How to reach me, carrier pigeon and my email
+- I need ya clothes, ya boots & ya motorcycle
+- I am a lifer CAD designer CNC programmer/machinist with just shy of 20 yrs in the trade
+- I have a deep understanding of manufacturing across a multitude of industries
+- I am available for technical questions, help and support
+- I also have a load of odd & somewhat useless information
